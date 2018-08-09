@@ -1,0 +1,2 @@
+# bout-StormGeo-StormGeo-is-a-global-provider-of-weather-intelligence-and-decision-support-services-
+bout StormGeo  StormGeo is a global provider of weather intelligence and decision support services, with leading solutions for shipping, oil and gas, renewable energy, aviation, media and cross industries. The company's 22 offices worldwide include seven 24/7/365 operation centers. For more information, visit StormGeo.com.
